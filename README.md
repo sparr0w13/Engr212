@@ -21,4 +21,20 @@ Add your name to the list.
 
 10. Billy Zane
 
-11. Justin Hong
+11. Sebastian Moreira
+
+12. Ricardo Colin
+
+13. Junhong Liang
+
+14. Zhenquan Yang
+
+15. Yi Liu
+
+16. Minh Nguyen
+
+17. Minggu Ma
+
+18. Kandace Bishop
+
+19. Justin Hong
